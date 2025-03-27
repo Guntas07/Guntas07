@@ -1,2 +1,2 @@
-# Hi I'm Guntas 👋
+# Hi, I'm Guntas 👋
 
